@@ -1,0 +1,1 @@
+This omelette is a fried egg made by cracking an egg and frying it.
